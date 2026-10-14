@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AIAB070327HVZVNRA0
+AIAB070327HVZVNRA0
